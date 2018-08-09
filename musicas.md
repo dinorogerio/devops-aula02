@@ -1,3 +1,3 @@
 coisa feia 
 tribo da periferia
-vida loka
+vida loka parte 2
