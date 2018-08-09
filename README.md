@@ -1,3 +1,0 @@
-# corinthians
-# santos
-# santa cruz
